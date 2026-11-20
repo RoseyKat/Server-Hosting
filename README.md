@@ -12,3 +12,6 @@ Contact me on discord for setup.
 > * RAM: 16GB
 > * Storage: 256GB SSD <sub> NVME SSD
 > * Additional 1TB HDD if required
+
+# Support Me
+[Buy Me a Coffee](buymeacoffee.com/rosekat)
