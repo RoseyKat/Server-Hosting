@@ -14,4 +14,4 @@ Contact me on discord for setup.
 > * Additional 1TB HDD if required
 
 # Support Me
-[Buy Me a Coffee](buymeacoffee.com/rosekat)
+[Buy Me a Coffee](https://www.buymeacoffee.com/rosekat)
